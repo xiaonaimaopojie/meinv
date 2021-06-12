@@ -1,2 +1,2 @@
 # meinv
-最新美女图片地址htpp://hp373.vip
+最新美女图片地址http://hp373.vip
